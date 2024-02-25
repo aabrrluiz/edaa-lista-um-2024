@@ -1,0 +1,2 @@
+# edaa-lista-um-2024
+1 LISTA DE EXERCICIOS
